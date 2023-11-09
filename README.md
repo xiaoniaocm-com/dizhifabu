@@ -3,8 +3,8 @@
 ------
 【点击下面进入网站】 ：
 
-###  :point_right:[点击此处进入网站A](https://xncm1.com ) 
-###  :point_right:[点击此处进入网站B](https://xncm1.com ) 
+###  :point_right:[点击此处进入网站A](https://ww.xn654sadf156df1gds003.cloud) 
+###  :point_right:[点击此处进入网站B](https://ww.xn654sadf156df1gds003.cloud) 
 
 ------
 ### :star: :point_right: 【收藏地址❷】 ：[点击此处进入收藏页❷](https://bitbucket.org/dizhifabuye/fabuye/src/master/README.md)
