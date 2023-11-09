@@ -1,34 +1,20 @@
-:bangbang::bangbang:最新地址发布:bangbang::bangbang:
-==
+  ## :bangbang::bangbang:网址收藏页面❶:bangbang::bangbang:
+### 为避免失联-请收藏本页
 ------
-# :star: :point_right: 【最新可用地址】 ：
-### https://xncm1.com    https://xncm2.com
+【点击下面进入网站】 ：
 
-### https://xncm3.com    https://xncm4.com
+###  :point_right:[点击此处进入网站A](https://xncm1.com ) 
+###  :point_right:[点击此处进入网站B](https://xncm1.com ) 
 
-5：https://xncm5.com  6：https://xncm6.com
-
-7：https://xncm7.com  8：https://xncm8.com
-
-9：https://xncm9.com  10：https://xncm10.com
-
-11：https://xncm11.com  12：https://xncm12.com
-
-13：https://xncm13.com  14：https://xncm14.com
-
-15：https://xncm15.com
-
-
-:star: :point_right: 【地址收藏】 ：https://52dizhi13.com
 ------
-:star: :point_right: 【海外地址】 ：https://iiav0.com
+### :star: :point_right: 【收藏地址❷】 ：https://iiav0.com
+### 为避免失联-请收藏本页,进入收藏地址❷两个一起收藏,更保险！
 ------
-:star: :point_right: 【邮箱联系方式】 ：521av@mail.com
+### :star: :point_right: 【邮箱联系方式】 ：xiaoniaocm@mail.com
 ------
-:bangbang:重要提醒:bangbang:请立即收藏本页面（微信QQ可收藏），避免走丢！
-==
+### :bangbang:重要提醒:bangbang:请立即收藏本页面（微信QQ收藏本页面或网址），避免走丢！
+### :bangbang:重要提醒:bangbang:请立即收藏本页面（添加到浏览器的书签或收藏），避免走丢！
 
-微信用户和QQ用户请长按网址复制到浏览器里面访问以上网址
--
+### 微信用户和QQ用户请长按网址复制到浏览器里面访问以上网址
 
-:e-mail: __邮箱联系方式: 521av@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
+### :e-mail: __邮箱联系方式: xiaoniaocm@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
