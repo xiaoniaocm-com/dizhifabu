@@ -7,8 +7,8 @@
 ###  :point_right:[点击此处进入网站B](https://xncm1.com ) 
 
 ------
-### :star: :point_right: 【收藏地址❷】 ：[点击此处进入收藏页❶](https://bitbucket.org/dizhifabuye/fabuye/src/master/README.md)
-### 为避免失联-请收藏本页,进入收藏地址❷两个一起收藏,更保险！
+### :star: :point_right: 【收藏地址❷】 ：[点击此处进入收藏页❷](https://bitbucket.org/dizhifabuye/fabuye/src/master/README.md)
+### 为避免失联-请收藏本页,然后进入收藏地址❷两个一起收藏,更保险！
 ------
 ### :star: :point_right: 【邮箱联系方式】 ：xiaoniaocm@mail.com
 ------
