@@ -3,8 +3,8 @@
 ------
 【点击下面进入网站】 ：
 
-###  :point_right:[点击此处进入网站A](https://ww.xn654sadf156df1gds003.cloud) 
-###  :point_right:[点击此处进入网站B](https://ww.xn654sadf156df1gds003.cloud) 
+###  :point_right:[点击此处进入网站A](https://www.cdn.07188.com-id.xn654sadf156df1gds001.cloud) 
+###  :point_right:[点击此处进入网站B](https://www.cdn.07188.com-id.xn654sadf156df1gds001.cloud) 
 
 ------
 ## :star:【收藏页面地址❷】 ：
